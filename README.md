@@ -1,2 +1,2 @@
 # Projekt-Automatyka
-Skończony
+Nie dla pasożytów
